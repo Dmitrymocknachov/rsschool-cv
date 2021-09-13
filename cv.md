@@ -51,6 +51,7 @@ _Skills_
 * High ability to self-education, analysis, systematic approach to problem solving, numerate with developing analytical skills.
 ________________________________
 _Hobbies_
+
 * running
 * boxing
 ________________________________
