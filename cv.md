@@ -5,9 +5,7 @@
 Minsk, Belarus  29.11.1980
 #### +375296104572
 e-mail: dimamox@ya.ru
-***
 _Work experience:_ 
-
 Feb 2010 – till Jun 2021 	Chief accountant 
  * [Technoserv Bel IOOO (Foreign Limited Liability Company)](https://t1-integration.ru/), a Belarusian subsidiary of the largest Russian system integrator operating Technoserv (Oracle, Cisco, Hitachi, etc.).       
 Main responsibilities: accounting, tax, management accounting, accounting and management accounting in SAP for the purpose of operational interaction with financial services (financial department, corporate reports department, budgeting department) to control financial flows.
@@ -28,26 +26,25 @@ Main functions: organization and maintenance of accounting. Planning, accounting
 Chief accountant. Economist.
 Jumeirah CHUP (Private Unitary Enterprise), Globalonebel ZAO (Join Stock Company)
 Main responsibilities: organization and maintenance of accounting "from cash to taxes".
-***
+
 _Education_
 * Minsk College of Business (2000-2002). Insurance Business. Financier of insurance company.
 * Minsk Institute of Management (2002-2004). Banking. Economist.
 * Institute for Retraining and Qualification Upgrading of Judges, Prosecutors and Legal Professionals at the Belarusian State University. Lawyer.
-***
+
 _Languages_
 * Russian
 * English (pre-Intermediate)
-***
+
 _Skills_
 * Chief accountant, manager. 15 years’ work experience
 * PC - advanced user (all office Suite, 1C-7, 1C-8, SAP).
 * Accounting: IT, production, services, rent, wholesale, retail, commission trade, import, export, representative offices of foreign organizations, FEZ
 * Driving experience 20 years
 * High ability to self-education, analysis, systematic approach to problem solving, numerate with developing analytical skills.
-***
 _Hobbies_
 * running
 * boxing
-***
+
 Married, two children
 Nationality: Republic of Belarus
