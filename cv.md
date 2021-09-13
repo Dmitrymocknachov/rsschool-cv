@@ -8,6 +8,7 @@ __**+375296104572**__
  e-mail: dimamox@ya.ru
 ________________________________________
 _Work experience:_ 
+
 Feb 2010 – till Jun 2021 	Chief accountant 
  * [Technoserv Bel IOOO (Foreign Limited Liability Company)](https://t1-integration.ru/), a Belarusian subsidiary of the largest Russian system integrator operating Technoserv (Oracle, Cisco, Hitachi, etc.).       
 Main responsibilities: accounting, tax, management accounting, accounting and management accounting in SAP for the purpose of operational interaction with financial services (financial department, corporate reports department, budgeting department) to control financial flows.
