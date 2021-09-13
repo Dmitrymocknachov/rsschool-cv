@@ -4,9 +4,8 @@
 ## Mocknachov Dmitry 
 Minsk, Belarus  29.11.1980
 __**+375296104572**__
- Skype:  dmocknachev   
- e-mail: dimamox@ya.ru
-________________________________________
+ Skype:  dmocknachev   e-mail: dimamox@ya.ru
+ ________________________________________
 _Work experience:_ 
 
 Feb 2010 – till Jun 2021 	Chief accountant 
