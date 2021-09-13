@@ -5,6 +5,7 @@
 Minsk, Belarus  29.11.1980
 #### +375296104572
 e-mail: dimamox@ya.ru
+
 _Work experience:_ 
 Feb 2010 – till Jun 2021 	Chief accountant 
  * [Technoserv Bel IOOO (Foreign Limited Liability Company)](https://t1-integration.ru/), a Belarusian subsidiary of the largest Russian system integrator operating Technoserv (Oracle, Cisco, Hitachi, etc.).       
