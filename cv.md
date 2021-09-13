@@ -1,13 +1,15 @@
-##Mocknachov Dmitry 
-Minsk, Belarus  29.11.1980
+
 ![Macknachou](Macknachou.jpg)
-####+375296104572
+
+## Mocknachov Dmitry 
+Minsk, Belarus  29.11.1980
+__**+375296104572**__
  Skype:  dmocknachev   
  e-mail: dimamox@ya.ru
 ________________________________________
 _Work experience:_ 
 Feb 2010 – till Jun 2021 	Chief accountant 
-* [Technoserv Bel IOOO (Foreign Limited Liability Company)](https://t1-integration.ru/), a Belarusian subsidiary of the largest Russian system integrator operating Technoserv (Oracle, Cisco, Hitachi, etc.).       
+ * [Technoserv Bel IOOO (Foreign Limited Liability Company)](https://t1-integration.ru/), a Belarusian subsidiary of the largest Russian system integrator operating Technoserv (Oracle, Cisco, Hitachi, etc.).       
 Main responsibilities: accounting, tax, management accounting, accounting and management accounting in SAP for the purpose of operational interaction with financial services (financial department, corporate reports department, budgeting department) to control financial flows.
   I provided accounting services for construction projects of the head company (OOO "TechnoServ AC", Moscow) in the Permanent Mission in Belarus on construction sites since 2011 in the energy sector for a total amount of contracts about 90 million USD: modernization of the infrastructure of the state customer with the supply of equipment (turbine) and installation. 
    Successful result of passing inspections, including my initiative and VAT refund from the budget of Belarus in the amount of 320 thousand USD upon the liquidation of foreign companies represented in Belarus at construction sites. Implementation of projects with major Belarusian customers: building a network for SOOO "Belarusian cloud technologies" (brand beCloud).
