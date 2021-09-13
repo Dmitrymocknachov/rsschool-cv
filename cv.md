@@ -3,9 +3,9 @@
 
 ## Mocknachov Dmitry 
 Minsk, Belarus  29.11.1980
-__**+375296104572**__
+__+375296104572__
  Skype:  dmocknachev   e-mail: dimamox@ya.ru
- ________________________________________
+ _______________________________________________________________________________________________________________________________________________
 _Work experience:_ 
 
 Feb 2010 – till Jun 2021 	Chief accountant 
@@ -32,28 +32,28 @@ Main functions: organization and maintenance of accounting. Planning, accounting
 Chief accountant. Economist.
 Jumeirah CHUP (Private Unitary Enterprise), Globalonebel ZAO (Join Stock Company)
 Main responsibilities: organization and maintenance of accounting "from cash to taxes".
-________________________
+________________________________________________________________________________________________________________________________________________
 
 _Education_
 * Minsk College of Business (2000-2002). Insurance Business. Financier of insurance company.
 * Minsk Institute of Management (2002-2004). Banking. Economist.
 * Institute for Retraining and Qualification Upgrading of Judges, Prosecutors and Legal Professionals at the Belarusian State University. Lawyer.
-__________________________________
+________________________________________________________________________________________________________________________________________________
 _Languages_
 * Russian
 * English (pre-Intermediate)
-___________________
+________________________________________________________________________________________________________________________________________________
 _Skills_
 * Chief accountant, manager. 15 years’ work experience
 * PC - advanced user (all office Suite, 1C-7, 1C-8, SAP).
 * Accounting: IT, production, services, rent, wholesale, retail, commission trade, import, export, representative offices of foreign organizations, FEZ
 * Driving experience 20 years
 * High ability to self-education, analysis, systematic approach to problem solving, numerate with developing analytical skills.
-________________________________
+________________________________________________________________________________________________________________________________________________
 _Hobbies_
 
 * running
 * boxing
-________________________________
+________________________________________________________________________________________________________________________________________________
 Married, two children
 Nationality: Republic of Belarus
